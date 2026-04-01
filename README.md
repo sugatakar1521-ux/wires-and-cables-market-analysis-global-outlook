@@ -3,7 +3,7 @@
 
 **Market Overview and Growth Trajectory**
 
-The global wires and cables market is entering a phase of sustained expansion, driven by electrification, renewable energy integration, and rapid digital infrastructure deployment. According to the analysis of Next Move Strategy Consulting, the market value of Wires and [**Cables Market**](https://www.nextmsc.com/report/wires-and-cables-market-3830) is projected to reach **USD 369.33 billion** by 2030, registering a **CAGR of 5.34%** by 2030.
+The global wires and cables market is entering a phase of sustained expansion, driven by electrification, renewable energy integration, and rapid digital infrastructure deployment. According to the analysis of Next Move Strategy Consulting, the market value of [**Wires and Cables Market**](https://www.nextmsc.com/report/wires-and-cables-market-3830?) is projected to reach **USD 369.33 billion** by 2030, registering a **CAGR of 5.34%** by 2030.
 
 [**Download FREE Sample**](https://www.nextmsc.com/wires-and-cables-market-3830/request-sample) 
 
