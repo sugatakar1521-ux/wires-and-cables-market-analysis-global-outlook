@@ -1,4 +1,5 @@
 # Wires and Cables Market: Strategic Outlook, Supply Chain Shifts, and Investment Opportunities
+![Wires and Cables Market](https://github.com/user-attachments/assets/e3bb9c71-3c86-494e-91f1-69855ee7a841)
 
 
 **Market Overview and Growth Trajectory**
